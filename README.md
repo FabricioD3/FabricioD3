@@ -14,7 +14,7 @@
  
 <br>
  
-### Segue a gente nas redes abaixo! 👨‍💻
+### Me Segue nas redes abaixo! 👨‍💻
  
 <div> 
   
